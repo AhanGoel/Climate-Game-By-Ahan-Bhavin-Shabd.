@@ -1,1 +1,1 @@
-# Climate-Game-By-Ahan-Bhavin-Shabd.
+# Climate-Game-by-Bhavin-Ahan-and-Shabd
